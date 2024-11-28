@@ -12,3 +12,7 @@
 
 ## Books
 - [Helion](https://helion.pl/promocja/2za1/35?helion_utm=1&type=news&utm_id=3371) - Zgarnij książkę GRATIS lub kupuj solo z rabatem do -50% 
+
+
+## Finanse
+- [TradingView](https://www.tradingview.com/black-friday/) - 70% off annual subscription
